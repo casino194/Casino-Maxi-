@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><strong>Casino Maxi&nbsp;</strong></strong></h1>
+<h1 dir="ltr"><strong><strong>Casino maxi - Türkiye'de oynayın&nbsp;</strong></strong></h1>
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Maxi Casino&#39;da oynayın</u></a></strong></p>
 <p>&nbsp;</p>
 Casino Maxi, çevrimiçi oyun dünyasında dikkat çeken bir platformdur. Malta Oyun Otoritesi tarafından lisanslanan bu casino, yeni kullanıcılarına 100% bonus sunarak 100€'ya kadar ek avantajlar sağlamaktadır. Ayrıca, kullanıcılar toplamda 200 ücretsiz döndürme fırsatından da yararlanabilirler.
